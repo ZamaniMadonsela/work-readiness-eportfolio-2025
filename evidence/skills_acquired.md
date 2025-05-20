@@ -1,4 +1,4 @@
-## 🧠 Soft Skills
+## 🧠 Skills Acquired 
 - Communication
 - Time management
 - Teamwork
